@@ -1,4 +1,4 @@
-
+Get the ultimate Adobe Premiere Pro for macOS addon with professional Adobe Premiere Pro for macOS Addon | multi-cam-editing + real-time-effects. Featuring multi-cam-editing and
 
 
 
